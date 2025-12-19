@@ -32,4 +32,4 @@ Crawling website
 
 ### Any other questions
 please make the inquries to me by email.
-jobhesk [  @] gmail.com
+
